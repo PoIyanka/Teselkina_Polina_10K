@@ -1,2 +1,1 @@
-# Teselkina_Polina_10K
-:3
+Teselkina_Polina_10K
